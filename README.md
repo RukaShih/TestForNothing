@@ -1,8 +1,10 @@
-炉石传说
+## 炉石传说草稿
 
-This file file serves as your book's preface, a great place to describe your book's content and ideas.
+http://hs.gameyw.netease.com/box\_act\_2016\_Qrcode.html
 
-‘Goood
 
-Goood
+
+
+
+
 
